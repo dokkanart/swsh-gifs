@@ -9,6 +9,9 @@ All I ask is that credit (to Hydros/@HydrosPlays) is given if sharing the link o
 I hope you all enjoy! :)
 
 ------------------------
+Gen 1-4 Sprites Made by Turret Furret
+Gen 1-7 Shiny Sprites made by Turret Furret
+
 By using these sprites you agree to the following:
 
 Credit is mandatory if you are using any of these sprites for entertainment purposes. Here are some ways you can do that:
