@@ -7,3 +7,10 @@ Currently there are just over 100 GIFs and still more coming! Please be patient!
 All I ask is that credit (to Hydros/@HydrosPlays) is given if sharing the link or useage for taking the time to make them!
 
 I hope you all enjoy! :)
+
+
+Subscribe
+http://www.youtube.com/Hydrosplays
+
+Follow
+http://www.twitter.com/Hydrosplays
